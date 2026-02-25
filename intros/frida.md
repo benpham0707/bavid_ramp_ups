@@ -1,0 +1,1 @@
+Hi my name is Frida Arriaga and I am from Coachella, California. My birthday is in November 21st (near Thanksgiving break). I like to run, watch kdramas and anime, and listen to Mexican-American rock music. A word people used to describe me is awesome (according to Evelyn).
